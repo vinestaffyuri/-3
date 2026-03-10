@@ -8,4 +8,4 @@
 𓈒 ⠀𖹭̶⠀⠀𖹭ິ 
            𝄄︵   ୭ৎ　── .✦   　 　　　　 thanks for reading, heres cookie for you . ◌͡⠀
       　ㅤㅤ◟ ͜  　⋮
-<div class="tenor-gif-embed" data-postid="13106190445836270919" data-share-method="host" data-aspect-ratio="1.34595" data-width="100%"><a href="https://tenor.com/view/vinestaff-phighting-vinestaff-phighting-phighting-vinestaff-gif-13106190445836270919">Vinestaff Phighting Sticker</a>from <a href="https://tenor.com/search/vinestaff-stickers">Vinestaff Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+"text/javascript"
