@@ -3,4 +3,5 @@
 ⠀ㅤׅㅤׅㅤׄㅤׄ　　　　　　　　-----　ㅤׅㅤׄ⠀ ⏜︵ ⠀hi!! call me vine(staff) or just axel.
 　　　　　　　　　　straight 　　and 　　taken　　 by 　　my 　　beloved 　　bf ^ u ^
 　　　　　　15 // minor,　　 dont be weird.
-⠀།| ͜͝  ͜͝⏝ my grammar is so bad even the translator is tired of me
+⠀།| ͜͝  ͜͝⏝ 　　　　　　　　　　　　my grammar is so bad even the translator is tired of me
+ㅤ ⏝ㅤ   ᣟ݂  𓏼 ⎯　hug and cuddle freely exc i put dni/uf/ucf/uid on my profile . 
