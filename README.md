@@ -8,3 +8,4 @@
 𓈒 ⠀𖹭̶⠀⠀𖹭ິ 
            𝄄︵   ୭ৎ　── .✦   　 　　　　 thanks for reading, heres cookie for you . ◌͡⠀
       　ㅤㅤ◟ ͜  　⋮
+https://tenor.com/pMkECFY5aCh.gif
